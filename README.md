@@ -1,2 +1,0 @@
-# lacak-penipu
-Recode dan
